@@ -6,5 +6,5 @@
 
 ### 🎓 grad cs student @ UofL 
 
-##### 🌐 Twitter/ X @ethansXprofile
+###### 🌐 hello.ethan@icloud.com
 ---
