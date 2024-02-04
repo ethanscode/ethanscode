@@ -4,7 +4,7 @@
 
 ### 💻 (currently) studying C, C++, Python
 
-### 🎓 grad cs student 
+### 🎓 grad cs student @ UofL
 
 ###### 🌐 hello.ethan@icloud.com
 ---
