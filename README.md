@@ -1,6 +1,6 @@
 ## Hey there, I'm Ethan ✌️
 
-### 💻 i <3 computing
+### 💾 i <3 computing
 
 ### 🦠 software is cool
 
