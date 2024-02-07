@@ -2,7 +2,7 @@
 
 ### 💻 i <3 computing
 
-### 🧩 software is cool
+### 🦠 software is cool
 
 ### 🎓 grad student @ UofL
 
