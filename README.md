@@ -1,6 +1,6 @@
 ## Hey there, I'm Ethan ✌️
 
-### 🦠 interested in cybersecurity & malware 
+### 💾 i <3 computing
 
 ### 💻 (currently) studying C, C++, Python
 
