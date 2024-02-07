@@ -1,8 +1,8 @@
 ## Hey there, I'm Ethan ✌️
 
-### 💾 i <3 computing
+### 💻 i <3 computing
 
-### 💻 (currently) studying C, C++, Python
+### 🧩 software is cool
 
 ### 🎓 grad cs student @ UofL
 
