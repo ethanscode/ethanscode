@@ -4,7 +4,7 @@
 
 ### 🧩 software is cool
 
-### 🎓 grad cs student @ UofL
+### 🎓 grad student @ UofL
 
 ###### 🌐 hello.ethan@icloud.com
 ---
