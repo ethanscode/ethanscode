@@ -1,10 +1,9 @@
 ## Hey there, I'm Ethan ✌️
 
-### 💾 i <3 computing
+### 🧮 &nbsp;i <3 computing
 
-### 🦠 software is cool
+### 💾 &nbsp; software is cool
 
-### 🎓 grad student @ UofL
+### 🎓 &nbsp; grad student @ UofL
 
 ###### 🌐 hello.ethan@icloud.com
----
