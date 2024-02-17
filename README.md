@@ -4,6 +4,6 @@
 
 ### 💾 &nbsp; software is cool
 
-### 🎓 &nbsp; grad student @ UofL
+### 🎓 &nbsp; grad student @ Louisville
 
 ###### 🕹 UnsolicitedPentester
