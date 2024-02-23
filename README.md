@@ -6,5 +6,5 @@
 
 ### 🎓 &nbsp; grad student @ Louisville
 
-###### 🕹️ &nbsp;&nbsp;&nbsp; kernlsandrz
+###### &nbsp;🕹️ &nbsp;&nbsp;&nbsp; kernlsandrz
 
