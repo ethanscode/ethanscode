@@ -4,5 +4,5 @@
 
 ### 🎓 &nbsp; grad student @ Louisville
 
-### 🌐   &nbsp; &nbsp;
+### 🌐   &nbsp; 
 
