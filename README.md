@@ -26,7 +26,7 @@
           `..::!8888888888888888888888888888888899fT|!^"'
             `' !!988888888888888888888888899fT|!^"'           
                 `!!8888888888888888899fT|!^"'                 
-                  `!988888888899fT|!^"'                  # I enjoy having breakfast in bed.
+                  `!988888888899fT|!^"'                
                     `!9899fT|!^"'                        # I like waking up to the smell of bacon.
                       `!^"'                              # Sue me. 
                                                          # And since I don't have a butler, I have to do it myself.
