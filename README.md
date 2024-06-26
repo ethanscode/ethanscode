@@ -29,5 +29,5 @@
                   `!988888888899fT|!^"'                
                     `!9899fT|!^"'                        # I like waking up to the smell of bacon.
                       `!^"'                              # Sue me. 
-                                                         # And since I don't have a butler, I have to do it myself.
+                                                        
 ```
