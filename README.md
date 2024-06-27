@@ -3,7 +3,7 @@
               ..,uod8BBBBBBBBBBBBBBBBRPFT?l!i:.
          ,=m8BBBBBBBBBBBBBBBRPFT?!||||||||||||||
          !...:!TVBBBRPFT||||||||||!!^^""'   ||||          
-         !.......:!?|||||!!^^""'            ||||                ..i'm ethan. 
+         !.......:!?|||||!!^^""'            ||||         
          !.........||||                     ||||         
          !.........||||  >_                 ||||         
          !.........||||                     ||||        
@@ -13,7 +13,7 @@
          `.........||||                    ,||||           
           .;.......||||               _.-!!|||||
    .,uodWBBBBb.....||||       _.-!!|||||||||!:'                                
-!YBBBBBBBBBBBBBBb..!|||:..-!!|||||||!iof68BBBBBb....                            ¯\_(ツ)_/¯
+!YBBBBBBBBBBBBBBb..!|||:..-!!|||||||!iof68BBBBBb....               
 !..YBBBBBBBBBBBBBBb!!||||||||!iof68BBBBBBRPFT?!::   `.
 !....YBBBBBBBBBBBBBBbaaitf68BBBBBBRPFT?!:::::::::     `.                   
 !......YBBBBBBBBBBBBBBBBBBBRPFT?!::::::;:!^"`;:::       `.
@@ -27,7 +27,7 @@
             `' !!988888888888888888888888899fT|!^"'           
                 `!!8888888888888888899fT|!^"'                 
                   `!988888888899fT|!^"'                
-                    `!9899fT|!^"'                        # I like waking up to the smell of bacon.
-                      `!^"'                              # Sue me. 
-                                                        
+                    `!9899fT|!^"'              # I like waking up to the smell of bacon.
+                      `!^"'                    # Sue me. 
+                                                                   ¯\_(ツ)_/¯
 ```
