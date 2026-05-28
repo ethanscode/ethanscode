@@ -1,1 +1,1 @@
-paste-n-pray `¯\_(ツ)_/¯`
+paste-n-pray 
